@@ -16,13 +16,6 @@
 年付计划享受九折优惠，优惠码：[mcuE8uOq](https://dageyun.net/#/register?code=SB0VunOR)
 
 
-
-## 套餐定价
-![image](https://github.com/eliassc0parker/dageyun/assets/157186255/060f5840-8e9d-4a4e-bd3f-c2bef6abf685)
-![image](https://github.com/eliassc0parker/dageyun/assets/157186255/8f95a00c-37ee-456c-b3bf-eda4b8a90573)
-
-
-
 ## 大哥云机场怎么样？
 
 大哥云以其稳定的服务和高性价比赢得了用户的青睐。如果您正在寻找一个可靠的网络加速服务，大哥云值得您的考虑。
